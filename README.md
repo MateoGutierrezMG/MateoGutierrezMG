@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me (dont)
 - 😄 Pronouns: He/Him/His
-- ⚡ Fun fact: If you put Cat pee under black light, it glows
+- ⚡ Fun fact: I am in Middle School
 
 <!---
 MateoGutierrezMG/MateoGutierrezMG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
